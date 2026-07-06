@@ -1,4 +1,4 @@
-# 
+# Premium Soda PDF scripts pour Mac OS | Instantané Soda PDF scripts pour PC Windows. Avec sauvegardes automatiques et workflows personnalisés — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
